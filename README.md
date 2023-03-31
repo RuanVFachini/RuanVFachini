@@ -1,4 +1,4 @@
-### Oá, Sou o Ruan Fachini 👋
+### Olá, Sou o Ruan Fachini 👋
 
 ### Faço parte da stack 'FullCurioso'
 
